@@ -13,4 +13,5 @@ Happy to collaborate and share anything of value I may know.
 15+ years accounting/finance/management experience with a passion for the tech side - dbs, dwhs, spreadsheets, analytics, sql.
 
 "Every time you hit 'reply all' a baby seal dies"
+
 "Never let school interfere with your education" - Paraphrased from Mark Twain
